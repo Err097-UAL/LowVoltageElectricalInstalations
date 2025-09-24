@@ -1,0 +1,2 @@
+VIDEO EXPLICATIVO SEMANA 1 
+https://youtu.be/_Gq6IQHPgd4
